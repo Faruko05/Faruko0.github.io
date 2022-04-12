@@ -1,0 +1,1 @@
+# Faruko05.github.oi
